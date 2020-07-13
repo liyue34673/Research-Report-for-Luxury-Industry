@@ -4,5 +4,6 @@ The report consists of three parts. 1) Overview of the global luxury goods indus
 
 If you have any questions considering this report, please contact：
 
-Email：yue.li97@outlook.com
-WeChat：yue030827
+· Email：yue.li97@outlook.com
+
+· WeChat：yue030827
